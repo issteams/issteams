@@ -12,7 +12,7 @@ Contributing
 We welcome contributions from the community! If you're interested in contributing to our projects, please stay connected and look out for opportunities to get involved in our development efforts.
 
 Support
-For any questions or inquiries, please feel free to reach out to us at issteamcompany@email.com. We're here to help and look forward to hearing from you.
+For any questions or inquiries, please feel free to reach out to us at issteamcompany@gmail.com. We're here to help and look forward to hearing from you.
 
 Connect with Us
 LinkedIn: 
