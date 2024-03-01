@@ -13,9 +13,8 @@ We welcome contributions from the community! If you're interested in contributin
 
 Support
 For any questions or inquiries, please feel free to reach out to us at issteamcompany@gmail.com. We're here to help and look forward to hearing from you.
-
 Connect with Us
 LinkedIn: 
-Twitter: 
+Twitter: https://twitter.com/issteams
 Facebook: https://www.facebook.com/intelligentsoftwaresolution
 Thank you for your interest in Intelligent Software Solutions (ISS)!
