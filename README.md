@@ -418,19 +418,19 @@ https://echowavs.com
 
 **Echowavs.com**
 
-[Facebook — Echowavs.com](https://facebook.com/Echowavs.com)
+[Facebook — Echowavs.com](https://web.facebook.com/profile.php?id=61566307229885)
 
 ### 🎵 TikTok
 
 **@Echowavs**
 
-[TikTok — Echowavs](https://tiktok.com/@Echowavs)
+[TikTok — Echowavs](https://tiktok.com/@echowavslab)
 
 ### 𝕏 X / Twitter
 
 **@Echowavs**
 
-[X — Echowavs](https://x.com/Echowavs)
+[X — Echowavs](https://x.com/echowavslab)
 
 ### 💬 WhatsApp
 
